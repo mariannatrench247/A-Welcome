@@ -12,3 +12,8 @@ I am a vegetarian 💚 😸 🐰 🌿 🍄
 In my spare time I like hiking in the woods 🌲 🌲 🌲
 Playing with Daisy the Dog 🌼 🐕 🌼 🐕 🌼 
 Reading : mostly about cosmology or science 👾 🌠 
+
+
+I have call back notes to my blog : 
+https://ragedeathandtriplesec.blogspot.com/ 🤘 🤘 🤘 
+** Please note: the blog name is old, I kept it in ode to my humble beginnings: an emo kid forever @ 🎵 🎶 ❤️ 💜 ❤️ 💙 ❤️ 💚 ❤️ 🎶 🎵
