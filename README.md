@@ -16,7 +16,7 @@
 
 Additional info: 
 
-I am a vegetarian 💚 😸 🐰 🌿 🍄
+I am a pescatarian (mostly vegetarian) 💚 😸 🐰 🌿 🍄
 In my spare time I like hiking in the woods 🌲 🌲 🌲
 Playing with Daisy the Dog 🌼 🐕 🌼 🐕 🌼 
 Reading : mostly about cosmology or science 👾 🌠 🌌 
