@@ -7,7 +7,7 @@
 
 
 
-- 👀 I’m interested in Machine Learning, Tiny ML, embedded systems, circuit board design, hybrid networks
+- 👀 I’m interested in Machine Learning, Tiny ML, embedded systems, circuit board design, hybrid networks, electric car deep learning frameworks
 - 🌱 I’m currently learning tflite
 - 💞️ I’m looking to collaborate on converting tf models -> tflite, alternatives to scaling models to microprocessors
 - 📫 How to reach me ... mari@daizeenterprises.com
