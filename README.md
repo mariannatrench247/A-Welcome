@@ -7,18 +7,14 @@
 
 
 
-- 👀 I’m interested in Machine Learning, Tiny ML, embedded systems, circuit board design, hybrid networks, electric car deep learning frameworks
-- 🌱 I’m currently learning tflite
-- 💞️ I’m looking to collaborate on converting tf models -> tflite, alternatives to scaling models to microprocessors
-- 📫 How to reach me ... mari@daizeenterprises.com
-- 🔎 📗  I like to provide comprehensive and exhaustive tutorials and guides in the world of Machine Learning for my own reference and visitors 😊
+- 👀 I’m interested in Machine Learning, collaborating on projects😊
 
 
 Additional info: 
 
-I am a vegetarian 💚 😸 🐰 🌿 🍄
+
 In my spare time I like hiking in the woods 🌲 🌲 🌲
-Playing with Daisy the Dog 🌼 🐕 🌼 🐕 🌼 
+I'm a dog mom! 🌼 🐕 🌼 🐕 🌼 
 Reading : mostly about cosmology or science 👾 🌠 🌌 
 
 Happy Scrolling! :octocat: :octocat:
